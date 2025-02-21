@@ -28,7 +28,7 @@ I recently **passed the GCP Professional Cloud Architect exam** 🏆 and am now 
 ## 📬 Let's Connect  
 - 💼 [LinkedIn](https://linkedin.com/in/yourprofile)  
 - 🐦 [Twitter](https://twitter.com/yourhandle)  
-- 📧 Email: your.email@example.com  
+- 📧 Email: akshitatyagi2001@gmail.com 
 
 ---
 
